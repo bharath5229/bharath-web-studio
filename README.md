@@ -79,13 +79,6 @@ bharath-web-studio/
 > ⭐⭐⭐⭐⭐ Hasini (Art Portfolio)  
 > "Beautiful and aesthetic website!"
 
----
-
-## 📞 Contact Me
-
-- 📱 Phone: [9894165229](tel:9894165229)  
-- 💬 WhatsApp: https://wa.me/919894165229  
-- 📧 Email: yourmail@gmail.com  
 
 ---
 
